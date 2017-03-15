@@ -1,2 +1,0 @@
-# bakalarka
-bakalarska prace
